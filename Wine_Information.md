@@ -1,6 +1,7 @@
 # 葡萄酒信息整理
 ## 圣马丁庄园干白葡萄酒
 *Chateau Saint Martin De La Garrigue*
+
 - 产区：法国-朗格多克-皮克普
 - 等级：法定产区
 - 年份：2019
@@ -54,7 +55,7 @@
 >
 >莱诺庄园干红：朗格多克小产区，质朴的酿酒师。果味浓郁、平衡。非常适合作为日常饮用。性价比很高。丹宁不重，回味也还可以，基本是口感均衡，果味突出，没有明显缺点。属于口粮酒。
 
-![avatar](https://github.com/NayamiOR/Sante/blob/master/%E9%85%92%E5%9B%BE%E7%89%87/%E8%8E%B1%E8%AF%BA%E5%B9%B2%E7%BA%A2.png)
+![avatar](https://github.com/NayamiOR/Sante/blob/master/Wine_Pic/Chateau%20Saint%20Martin%20De%20La%20Garrigue.png)
 
 ---
 
