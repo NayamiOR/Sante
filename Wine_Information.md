@@ -15,6 +15,8 @@
 >
 >圣马丁庄园干白：该产区的经典产品，优雅的酸度+矿物质+细腻的油脂感。酒庄内部还有一家法国顶级生蚝养殖场。此酒非常适合做开胃酒，或搭配生蚝和各类海鲜。国内之前没有类似产品存在。
 
+<img src="https://wx2.sinaimg.cn/mw1024/007lGyzBgy1gghcbs0oi8j309e10q1a5.jpg" alt="avatar" style="zoom:25%;" />
+
 ---
 
 ## 圣特罗佩鎏金桃红葡萄酒
@@ -41,6 +43,8 @@
 带有芬芳的香气，果味浓郁的口感
 是葡萄园在尊重环境的前提下辛勤的种植得来
 
+<img src="https://wx4.sinaimg.cn/mw1024/007lGyzBgy1gghcbz2ealj304g0eltb7.jpg" alt="avatar" style="zoom:45%;" />
+
 ---
 
 ## 莱诺庄园干红葡萄酒
@@ -55,11 +59,13 @@
 >
 >莱诺庄园干红：朗格多克小产区，质朴的酿酒师。果味浓郁、平衡。非常适合作为日常饮用。性价比很高。丹宁不重，回味也还可以，基本是口感均衡，果味突出，没有明显缺点。属于口粮酒。
 
-![avatar](https://github.com/NayamiOR/Sante/blob/master/Wine_Pic/Chateau%20Saint%20Martin%20De%20La%20Garrigue.png)
+<img src="https://wx3.sinaimg.cn/mw1024/007lGyzBgy1gghcbz0w1nj30ak10dk68.jpg" alt="avatar" style="zoom:25%;" />
 
 ---
 
 ## A.O.P. Vinsobres rouge BIO
+
+<img src="https://wx3.sinaimg.cn/mw1024/007lGyzBgy1gghcbs1617j307h0pkn4d.jpg" alt="avatar" style="zoom:25%;" />
 
 ---
 
@@ -77,6 +83,8 @@
 >
 >圣普山谷神索：传奇的酿酒师，原是法甲足球联赛职业球员。后在波尔多圣艾米隆和法国南部建立葡萄园。葡萄酒酿造成为他的挚爱。全部葡萄酒都采用有机种植。这款酒细腻、优雅、甜美，黑醋栗、浆果味道层次不穷。非常容易饮用的同时，持续力极长。一瓶可以喝一天，口感都持续散放。很适合朋友之间慢慢饮用。
 
+<img src="https://wx1.sinaimg.cn/mw1024/007lGyzBgy1gghcbz1gk2j30aa0zkgxi.jpg" alt="avatar" style="zoom:25%;" />
+
 ---
 
 ## 库隆城堡干红葡萄酒
@@ -92,6 +100,8 @@
 >葡萄园有机种植，每公顷产量低于3000升，手工采摘在小型发酵罐中发酵，佳丽酿和歌海娜葡萄采用整粒发酵，随后在法国橡木桶中陈酿12个月。——Fabre家族庄主	Louis Fabre
 >
 >库隆城堡，庄主是该科比埃产区的活字典，哲学家、历史学家、人类学家，有机种植。此酒大气磅礴，极低的产量+12个月的橡木桶陈酿。非常适合搭配正餐，牛排等红肉。满足感很高。品质卓越，价格很划算。非常推荐。
+>
+><img src="https://wx2.sinaimg.cn/mw1024/007lGyzBgy1gghcbyz0quj309m0zkapn.jpg" alt="avatar" style="zoom:25%;" />
 
 ---
 
